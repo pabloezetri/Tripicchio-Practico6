@@ -1,0 +1,1 @@
+# Tripicchio-Practico6
